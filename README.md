@@ -1,6 +1,3 @@
-# Whack-Yoru-Boss
-The break time in office is so boring 😞  Why don't you relax by whacking your virtual boss in the super cool game - Whack your boss 😎😎 Play here: https://www.freegames66.com/fun/whack-your-boss/ Learn more about the game: https://www.facebook.com/freegames66/photos/a.303211376809355/554639868333170/?type=3&amp;__tn__=-R 
-Whack Your Boss
 🔰 About game:
 Whack Your Boss is a fun flash game that was created by Doodieman on November 11st, 2004. This game helps players to reduce their stress in life especially stress comes from their boss by allowing them to murder a virtual boss. As the message that you see when entering this game, whack your boss is a publish service, a place to manage your anger without harming a soul. With this humanities meaning, this game attracts millions of views and received lots of positive feedback from players. In addition, it also won the Daily Feature and Weekly Users' Choice Awards.
  
